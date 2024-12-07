@@ -1,6 +1,6 @@
 — greetings, I’m @c4nnibalistic
 
-— I find interest on fashion
+— I find interest in fashion
 
 — I’m currently learning Czech
 
